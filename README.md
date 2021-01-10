@@ -9,4 +9,4 @@ TA's
 My peers
 youtube
 
-Please go easy I really struggled with this.
+Please go easy I really struggled with this. Thank you.
